@@ -1,4 +1,4 @@
-![Cyber](https://github.com/user-attachments/assets/77f36a92-fc3a-48a4-8e1f-2008d4f842ce)
+![Open Sentra](Before risk becomes visible, it changes the pattern..png)
 
 ### Get Involved
 ---
