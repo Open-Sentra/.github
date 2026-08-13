@@ -1,3 +1,5 @@
+![Open Sentra](https://raw.githubusercontent.com/Open-Sentra/.github/refs/heads/main/Before%20risk%20becomes%20visible%2C%20it%20changes%20the%20pattern..png)
+
 # Open Sentra
 
 Before risk becomes visible, it changes the pattern.
